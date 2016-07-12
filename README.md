@@ -1,0 +1,2 @@
+# Sentynela
+segurança
